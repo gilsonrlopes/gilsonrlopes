@@ -5,7 +5,7 @@
 📍 Colombo - PR, Brazil  
 📫 Contact: gilsonrodrigolopes@gmail.com  
 🌐 GitHub: [gilsonrlopes](https://github.com/gilsonrlopes)
-
+🧑‍🎓 Linkedin: https://www.linkedin.com/in/gilsonrlopes/
 ---
 
 ### 💻 What I'm learning:
